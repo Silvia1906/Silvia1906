@@ -2,7 +2,7 @@
 - 👀 I’m interested in improving my knowledge.
 - 🌱 I’m currently learning python.
 - 💞️ I’m looking to collaborate on the construction of satelites.
-- 📫 How to reach me @IES_Argonautex
+- 📫 You can reach me in: @IES_Argonautex
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love doing sports
 
